@@ -1,1 +1,1 @@
-# Remotr-Dynamix-Solutions
+# Remote-Dynamix-Solutions
